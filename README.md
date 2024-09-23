@@ -68,11 +68,12 @@ Lesson182
 ![image](https://github.com/user-attachments/assets/d6a2a798-1167-45ff-88d3-58e2f3348182)
 ![image](https://github.com/user-attachments/assets/0a5654d1-ab73-4ddc-a798-e304276cf4d2)
 ![image](https://github.com/user-attachments/assets/a48b5441-c5ac-4588-a7bd-8f568b9b8a5c)
-![image](https://github.com/user-attachments/assets/3e73b690-e3be-4ee1-8533-7e31a66b5745)
+![image](https://github.com/user-attachments/assets/9f9b74fd-b774-4a3a-87d6-647bea780dc0)
+
 Lesson184
 ![image](https://github.com/user-attachments/assets/ddcb8da8-b6a9-4cd3-a464-37318891e31f)
-![image](https://github.com/user-attachments/assets/4ff5d747-2171-476f-b6e8-8c0f5f955e65)
 ![image](https://github.com/user-attachments/assets/20f4b4fe-32c6-481b-8be6-a03a1545bcf8)
+![image](https://github.com/user-attachments/assets/442a48b5-64b6-4152-a6ac-3d4fe2ec7724)
 ![image](https://github.com/user-attachments/assets/3fbb9888-2659-4834-973f-fa76185eddcd)
 ![image](https://github.com/user-attachments/assets/dc1f389b-ea83-4e18-b05b-54a71a5621d0)
 Lesson185
@@ -94,7 +95,7 @@ Lesson 188
 ![image](https://github.com/user-attachments/assets/1d43f4b5-8a82-4b62-84ef-31f7ba5a2387)
 ![image](https://github.com/user-attachments/assets/671b9546-d4d0-4f37-bcdc-dbd45bb118ca)
 ![image](https://github.com/user-attachments/assets/bdc6f5ee-0b31-4a83-aa43-559469d57ca9)
-![image](https://github.com/user-attachments/assets/3076c421-51d8-4eb6-a1a7-21d272fff72a)
+![image](https://github.com/user-attachments/assets/2c721023-9b23-4a0d-8a36-a26077cab585)
 ![image](https://github.com/user-attachments/assets/35f01834-a448-4eed-bf81-8ea62bc34a78)
 ![image](https://github.com/user-attachments/assets/268e6db0-d47c-4b9f-bddc-393d50850aa0)
 ![image](https://github.com/user-attachments/assets/435e88be-5d8a-412c-b083-cba2f02e99ba)
