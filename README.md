@@ -163,5 +163,60 @@ Lesson 191
 ![image](https://github.com/user-attachments/assets/efbe9f2a-e0cf-4007-9bfb-6cb6cda3c9a5)
 ![image](https://github.com/user-attachments/assets/50fab83e-0225-4972-98a6-de3aea37c744)
 ![image](https://github.com/user-attachments/assets/1bf10510-46b7-48b1-be4f-d73e79949ded)
+Lesson 192
+![image](https://github.com/user-attachments/assets/b3baa6fb-be7e-463a-8182-689c2b2d00b8)
+![image](https://github.com/user-attachments/assets/5e94ed27-a76e-49c2-b0fa-043c5715d53b)
+![image](https://github.com/user-attachments/assets/71dab807-51ec-4c61-9499-04775e3b5c26)
+![image](https://github.com/user-attachments/assets/b6dc0de7-4f81-45f7-af08-078a71f58696)
+![image](https://github.com/user-attachments/assets/bcd7669c-1ebd-4f9f-81e0-9bd9317e83e1)
+![image](https://github.com/user-attachments/assets/a43ddf90-5760-4d8c-99f5-66fa350984e7)
+![image](https://github.com/user-attachments/assets/223f58a6-74d1-4f1f-aca4-bebf22c206b0)
+![image](https://github.com/user-attachments/assets/7ec99ee0-785c-4905-a3e4-186f42090602)
+![image](https://github.com/user-attachments/assets/2a97e127-47c0-4c39-835c-eca4ae86f1de)
+![image](https://github.com/user-attachments/assets/0d8fd707-ae6e-43eb-8690-a8878b556810)
+![image](https://github.com/user-attachments/assets/dc404fd6-90f5-4055-a45f-f3e48483cfaa)
+![image](https://github.com/user-attachments/assets/3f206ec1-f501-43c5-b0a8-8bebe0196926)
+Lesson 193
+![image](https://github.com/user-attachments/assets/41bec0ad-2186-4078-b91a-79ffbc18d971)
+![image](https://github.com/user-attachments/assets/6479b76f-50c9-4a06-bae7-9ea8a1e607f5)
+![image](https://github.com/user-attachments/assets/17a8ca3e-65db-4676-a5e0-e82ab2fad36d)
+![image](https://github.com/user-attachments/assets/177ed0a6-737c-4e70-9028-0ff4d86b1933)
+![image](https://github.com/user-attachments/assets/7552ed7c-3953-4a7d-8b9a-dc25bbf1145e)
+![image](https://github.com/user-attachments/assets/b68158cb-10fc-499c-9022-7aa398b7b433)
+![image](https://github.com/user-attachments/assets/d8cff04c-46b1-43ae-93c1-145b062cda9d)
+![image](https://github.com/user-attachments/assets/4ac71c11-fa0b-4a20-9f2d-56cfc6d83d39)
+![image](https://github.com/user-attachments/assets/5e2ccb5b-feaa-460b-9510-8dbdcca54071)
+![image](https://github.com/user-attachments/assets/e6e472e2-36db-4a67-a6ed-94b21190114e)
+![image](https://github.com/user-attachments/assets/05ac27b2-e2cd-4743-8829-dde243c9ecf8)
+![image](https://github.com/user-attachments/assets/aedda0aa-5092-4822-9fa0-256ed6d5a564)
+![image](https://github.com/user-attachments/assets/5906d64b-3161-43f0-bcc7-62c91767e0db)
+![image](https://github.com/user-attachments/assets/b35113f9-222f-4a98-96b8-50067b5aef38)
+Lesson 194
+![image](https://github.com/user-attachments/assets/0fbaebdc-7d2c-4d61-b604-8ae1b7858a87)
+![image](https://github.com/user-attachments/assets/fe886bd8-9f7f-48b6-8ef8-50143ddcf05a)
+![image](https://github.com/user-attachments/assets/b05427d5-5102-4077-b75b-88e93a9a963a)
+![image](https://github.com/user-attachments/assets/06b747f7-8d5d-4e35-ab30-6d2707d5517f)
+![image](https://github.com/user-attachments/assets/049c0028-e3d6-43e1-8738-157edf117e63)
+![image](https://github.com/user-attachments/assets/cff8bf0e-0c2b-4ff7-9e2b-97527387fcf5)
+![image](https://github.com/user-attachments/assets/7c588e1a-af1c-4f29-9726-084ac95b30f4)
+![image](https://github.com/user-attachments/assets/097d58cc-af2a-4a64-b1af-7442c854cedf)
+![image](https://github.com/user-attachments/assets/f8480b26-08f1-4a18-91ff-4b6684c170ad)
+Lesson 196
+![image](https://github.com/user-attachments/assets/144659a3-d4cd-48c5-8238-1a5cfd7df4fa)
+![image](https://github.com/user-attachments/assets/70481265-c8a7-43e1-8fbc-34c4b8197545)
+![image](https://github.com/user-attachments/assets/20968df9-0ad9-4abb-9220-df4d86a56a45)
+![image](https://github.com/user-attachments/assets/2f44640f-95e9-4b70-9bfd-6cc04a042f3e)
+![image](https://github.com/user-attachments/assets/c2418b3f-1642-4139-ae96-ac0fe3c9cc04)
+
+
+
+
+
+
+
+
+
+
+
 
 
