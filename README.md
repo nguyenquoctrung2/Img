@@ -576,6 +576,24 @@ Lesson 230
 ![image](https://github.com/user-attachments/assets/f1cc4735-a887-4f6e-8a63-cb946854b36c)
 ![image](https://github.com/user-attachments/assets/241d0d20-3e6d-4ac4-b81a-01a13aa56dde)
 ![image](https://github.com/user-attachments/assets/7a81f820-15b7-4c60-9cc0-8fd8fbd93bad)
+Kiểm tra cuối chương 1
+![image](https://github.com/user-attachments/assets/28802123-f401-418f-8eb5-e79cb83e8b15)
+![image](https://github.com/user-attachments/assets/1dec0c29-fe6d-46e0-ac02-0670ab340e8a)
+![image](https://github.com/user-attachments/assets/9a133511-5909-4044-9a0b-3c8020a3c54b)
+![image](https://github.com/user-attachments/assets/de829bec-dbed-44b7-bd1f-630e119959cf)
+![image](https://github.com/user-attachments/assets/b41780cb-5997-4fb2-8dde-6653f74a26af)
+![image](https://github.com/user-attachments/assets/a749749e-3ac7-4fbe-ba41-2e33905058ce)
+![image](https://github.com/user-attachments/assets/2843dede-5ed5-4d58-8296-0c296069ca03)
+![image](https://github.com/user-attachments/assets/0c161e30-3d0d-4ff8-a76d-5a8160bd47cd)
+![image](https://github.com/user-attachments/assets/44be6ac9-7dd5-4b4f-8fee-4adf1d45b2a6)
+![image](https://github.com/user-attachments/assets/8891eaf9-6bc6-4766-a699-0f69d13389a8)
+![image](https://github.com/user-attachments/assets/14e01c7b-37e3-4229-b981-e0adf070f0b6)
+![image](https://github.com/user-attachments/assets/9c551d8f-3eb5-4e59-8473-b60bdb6cde06)
+
+![image](https://github.com/user-attachments/assets/cd913f22-9bc0-48a7-8e59-f5e6924ee3c2)
+![image](https://github.com/user-attachments/assets/58d0b92a-00b4-49e9-9b0c-89a2076425d9)
+![image](https://github.com/user-attachments/assets/72b03821-4dd9-45c2-ab6d-8700ac6ee241)
+![image](https://github.com/user-attachments/assets/e52cd38c-783b-4677-bdef-a22dce45c159)
 
 
 
