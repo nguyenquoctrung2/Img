@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/73c935dc-4273-42b2-8d4e-8fdb20e20792)![image](https://github.com/user-attachments/assets/c4fa0b53-3afb-458a-a385-e57520915e39)# Img
+![image](https://github.com/user-attachments/assets/460023bd-4ecf-47bb-8ccb-2e2d306557da)![image](https://github.com/user-attachments/assets/73c935dc-4273-42b2-8d4e-8fdb20e20792)![image](https://github.com/user-attachments/assets/c4fa0b53-3afb-458a-a385-e57520915e39)# Img
 lesson175
 ![image](https://github.com/user-attachments/assets/1d04f372-e3c5-43e8-85d8-516c124846cb)
 ![image](https://github.com/user-attachments/assets/88c9bd01-c559-49fa-ae3f-12d139f0c8b0)
@@ -623,6 +623,22 @@ Kiểm tra cuối chương 2
 ![image](https://github.com/user-attachments/assets/b9fa2b7c-2456-4930-bbf7-b94d6142b15d)
 ![image](https://github.com/user-attachments/assets/45c4a6fe-e5f6-40fa-9cdf-40cc4c980b79)
 ![image](https://github.com/user-attachments/assets/c6657cdd-6046-4a44-b379-7658dcde8323)
+KT cuối chương 3
+![image](https://github.com/user-attachments/assets/a5e36739-18f2-406f-8462-b8fc1ed9b404)
+![image](https://github.com/user-attachments/assets/751f325b-6afe-422b-b746-18c185273971)
+![image](https://github.com/user-attachments/assets/4ab2a67d-9750-438c-9711-1c4a5137565c)
+![image](https://github.com/user-attachments/assets/890b351e-3dd4-4912-8aab-4861cd2dce9e)
+![image](https://github.com/user-attachments/assets/ecda358b-0780-4e54-b302-1cc47023d4cd)
+![image](https://github.com/user-attachments/assets/b8562a25-ffd0-4f32-813b-d1b5494f4c78)
+![image](https://github.com/user-attachments/assets/d42cc0d6-8639-4078-be18-eea03f631248)
+![image](https://github.com/user-attachments/assets/068c4222-e05a-4e28-beff-b6d75c26b6e9)
+![image](https://github.com/user-attachments/assets/2c69219c-7639-4db0-bb39-2df7c9852094)
+![image](https://github.com/user-attachments/assets/739a3cce-15f7-4c92-a3c1-e008a4eb7693)
+![image](https://github.com/user-attachments/assets/d224981a-8022-41f9-b13e-0748bcce42bb)
+![image](https://github.com/user-attachments/assets/c37d4944-b6fd-49df-a866-f6d11c799a11)
+Đề kiểm tra học kì 1
+![image](https://github.com/user-attachments/assets/3a75c5cf-210f-471c-8222-544ab72b5bd2)
+![image](https://github.com/user-attachments/assets/5c50a8e9-572f-42d0-8497-7abe0c2dc00b)
 
 
 
