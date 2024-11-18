@@ -671,7 +671,29 @@ KT cuối chương 3
 ![image](https://github.com/user-attachments/assets/f766c655-c3a6-4309-8519-5967f389fef5)
 ![image](https://github.com/user-attachments/assets/f3583c30-d7fd-4d70-ac78-b6955e39c208)
 ![image](https://github.com/user-attachments/assets/370b8cce-1fb2-4d58-84fc-32f47c84fb34)
+Kiểm tra cuối chương 4
+![image](https://github.com/user-attachments/assets/92d18611-1df5-41c2-9c86-344b6cbbd72b)
+![image](https://github.com/user-attachments/assets/e2b8213d-14f9-4025-973c-e828fe925541)
+![image](https://github.com/user-attachments/assets/1f60fd33-248f-4642-b720-ef6d8d04d96b)
+![image](https://github.com/user-attachments/assets/a6ddf785-4a62-40e5-b191-5e55c06f48a9)
+![image](https://github.com/user-attachments/assets/1111fedf-a2bc-46e6-8534-9e6e9c1d509f)
+![image](https://github.com/user-attachments/assets/7c57da3b-0a06-4369-9593-e6ab0bc1dcd6)
+![image](https://github.com/user-attachments/assets/37ab7444-5dfb-49ae-be43-2b546a5d7ed0)
+![image](https://github.com/user-attachments/assets/2244dd54-c080-4634-bdcf-4c27d164e372)
+![image](https://github.com/user-attachments/assets/9cae76de-5ae4-4322-885f-8f5e9257fe38)
+![image](https://github.com/user-attachments/assets/c6bc004d-c523-4bc1-9214-7b04612edebe)
+![image](https://github.com/user-attachments/assets/6f831853-19be-4651-bd62-a294913b44b1)
+![image](https://github.com/user-attachments/assets/d0fec6da-bbf4-4f98-9f7e-6bb92427b2a4)
+![image](https://github.com/user-attachments/assets/4bb8ba57-1bce-451e-873b-9e9f57584b08)
+Cuối kì 2
+![image](https://github.com/user-attachments/assets/7b703f71-08a3-4fc3-869d-1e3b0bc1639e)
+![image](https://github.com/user-attachments/assets/21b34a9a-23c9-4a2b-bc9c-2c3da0d86b32)
+![image](https://github.com/user-attachments/assets/10241ee8-cf24-4d9c-85db-b8a9adeed7e2)
 
+![image](https://github.com/user-attachments/assets/7fb063d1-d55c-42ed-ae23-f28592c2a88b)
+
+![image](https://github.com/user-attachments/assets/af0b3126-3020-458d-94c8-d5d3ea67e775)
+![image](https://github.com/user-attachments/assets/65337b82-4fe2-4b83-8696-7fabd46515b8)
 
 
 
