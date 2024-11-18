@@ -637,8 +637,41 @@ KT cuối chương 3
 ![image](https://github.com/user-attachments/assets/d224981a-8022-41f9-b13e-0748bcce42bb)
 ![image](https://github.com/user-attachments/assets/c37d4944-b6fd-49df-a866-f6d11c799a11)
 Đề kiểm tra học kì 1
-![image](https://github.com/user-attachments/assets/3a75c5cf-210f-471c-8222-544ab72b5bd2)
-![image](https://github.com/user-attachments/assets/5c50a8e9-572f-42d0-8497-7abe0c2dc00b)
+![image](https://github.com/user-attachments/assets/9340febb-ec10-4823-93c3-6d6135c2faee)
+![image](https://github.com/user-attachments/assets/4b6619b8-87cb-4085-8c77-a6e7f4f40282)
+![image](https://github.com/user-attachments/assets/28426279-d582-43c1-8535-abe5f0a1a75e)
+![image](https://github.com/user-attachments/assets/b26a9841-ad35-452b-a794-f707e0887ce6)
+![image](https://github.com/user-attachments/assets/58a8361d-3eb9-4d81-b2c1-5d48e26d13da)
+![image](https://github.com/user-attachments/assets/f7395477-f6d5-4a03-884a-656999d0747d)
+![image](https://github.com/user-attachments/assets/87cba174-39eb-4480-b04c-a6d768616c9f)
+![image](https://github.com/user-attachments/assets/72e0600b-3461-4254-b749-ffbe21383579)
+![image](https://github.com/user-attachments/assets/f7c00c7c-6f20-408e-8c7f-00bb768440ed)
+Đề kiểm tra 2
+![image](https://github.com/user-attachments/assets/3e2a884a-f712-46f1-8b03-7904bdf31ddd)
+![image](https://github.com/user-attachments/assets/dc0338df-9e80-49b7-b0fa-a44eb3c88b18)
+![image](https://github.com/user-attachments/assets/68e21401-521a-44fd-b39f-565ad4a6b61c)
+![image](https://github.com/user-attachments/assets/8cf8795a-8967-4faa-9432-70c28c6d94ae)
+![image](https://github.com/user-attachments/assets/1c3da56d-4dcb-4198-bda7-133d04095d5b)
+![image](https://github.com/user-attachments/assets/f8353674-3438-4c8f-89d3-cfabab3f2c57)
+![image](https://github.com/user-attachments/assets/5b121b97-177a-45dd-85ef-644468e37494)
+![image](https://github.com/user-attachments/assets/8aa44431-222b-4541-b0e7-204c73a39138)
+![image](https://github.com/user-attachments/assets/38bfeb6f-0f56-4a52-af0b-410148dcab18)
+![image](https://github.com/user-attachments/assets/1eec0be1-8cb7-4408-a262-e45af1801bc9)
+![image](https://github.com/user-attachments/assets/1cf05939-734e-45b0-9e17-0f3ee7d8c9b8)
+![image](https://github.com/user-attachments/assets/142d4a2d-9336-453d-a7aa-6ed238ebde7c)
+Đề kiểm tra số 3
+![image](https://github.com/user-attachments/assets/c97486c5-f683-4688-81c8-f71078cdea51)
+![image](https://github.com/user-attachments/assets/908217dc-6043-4d27-9f5d-2b0eacd0832d)
+![image](https://github.com/user-attachments/assets/a3fc1899-1952-4574-b49f-937cd49764fe)
+![image](https://github.com/user-attachments/assets/7ac9089a-ea94-4c07-b4d0-aa71e9e7b807)
+![image](https://github.com/user-attachments/assets/fb63166f-7be2-43a9-a61a-ed6fccda2bdc)
+![image](https://github.com/user-attachments/assets/8fdfeb65-475a-4a18-af12-d9994d1d0897)
+![image](https://github.com/user-attachments/assets/b96c0a67-e687-4b39-924f-cafd0f1dc51a)
+Đề kiểm tra số 4 
+![image](https://github.com/user-attachments/assets/f766c655-c3a6-4309-8519-5967f389fef5)
+![image](https://github.com/user-attachments/assets/f3583c30-d7fd-4d70-ac78-b6955e39c208)
+![image](https://github.com/user-attachments/assets/370b8cce-1fb2-4d58-84fc-32f47c84fb34)
+
 
 
 
