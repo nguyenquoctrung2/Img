@@ -498,7 +498,7 @@ Lesson 217
 ![image](https://github.com/user-attachments/assets/2b5c22e6-3fb7-4d67-a007-17be2505425b)
 Lesson 218
 ![image](https://github.com/user-attachments/assets/db5bf23c-9e51-4b1c-bd52-88b267970677)
-![image](https://github.com/user-attachments/assets/8e5f6ffa-0c04-4dbb-a53b-f47a09575486)
+![image](https://github.com/user-attachments/assets/b65a6fbe-f39f-478e-9abc-81423bcaba00)
 ![image](https://github.com/user-attachments/assets/c6779988-48ec-409b-93fb-22a0ac434e90)
 Lesson 220
 ![image](https://github.com/user-attachments/assets/5a114a50-ddc3-4019-b0c5-36a44e203552)
