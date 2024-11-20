@@ -2,7 +2,8 @@
 lesson175
 ![image](https://github.com/user-attachments/assets/1d04f372-e3c5-43e8-85d8-516c124846cb)
 ![image](https://github.com/user-attachments/assets/88c9bd01-c559-49fa-ae3f-12d139f0c8b0)
-![image](https://github.com/user-attachments/assets/0027b929-0289-4d98-bdfd-a9f8a6b03062)
+![image](https://github.com/user-attachments/assets/3b06efe9-21fc-4211-9ca6-e4dfbe7ddd6e)
+![image](https://github.com/user-attachments/assets/a7c3b7de-32d8-4a8b-8ccc-d0aec70af151)
 ![image](https://github.com/user-attachments/assets/03b61aa7-e9a8-4727-93a2-25ca97fcc352)
 lesson176
 ![image](https://github.com/user-attachments/assets/658f7670-2172-4320-8116-8df264b16eb7)
