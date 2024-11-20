@@ -695,6 +695,12 @@ Cuối kì 2
 
 ![image](https://github.com/user-attachments/assets/af0b3126-3020-458d-94c8-d5d3ea67e775)
 ![image](https://github.com/user-attachments/assets/65337b82-4fe2-4b83-8696-7fabd46515b8)
+Tiếng Việt
+Chapter077
+![image](https://github.com/user-attachments/assets/c13fd0de-85fd-450c-a16b-b6e4d9c50374)
+
+![image](https://github.com/user-attachments/assets/35a5aba9-040d-42e4-ae70-4d2a545f3198)
+![image](https://github.com/user-attachments/assets/bd714ac7-460c-4114-a6a0-0cfcacb0dc99)
 
 
 
