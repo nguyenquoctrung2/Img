@@ -722,7 +722,9 @@ Chapter074
 Chapter073
 ![image](https://github.com/user-attachments/assets/bc715a10-6364-481d-95f9-4881862310ac)
 ![image](https://github.com/user-attachments/assets/4a45049e-6f02-4ea6-8f0f-31c2ec31debc)
-
+Chapter072
+![image](https://github.com/user-attachments/assets/ad486566-c424-4520-b091-908182459311)
+![image](https://github.com/user-attachments/assets/0b275a89-4952-4f63-b976-284fd24801ca)
 
 
 
