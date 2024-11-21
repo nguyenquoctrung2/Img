@@ -713,6 +713,15 @@ Chapter078
 Chapter076
 ![image](https://github.com/user-attachments/assets/2b47906d-667c-4794-8090-e1f0854236f7)
 ![image](https://github.com/user-attachments/assets/b07ae1c3-b366-465e-ac47-75f6b900202c)
+Chapter074 
+![image](https://github.com/user-attachments/assets/767cfc50-3baa-41f8-9d6a-0e07e77f67aa)
+![image](https://github.com/user-attachments/assets/b0a3bf83-3a28-41cb-b468-e7b2637d92fe)
+![image](https://github.com/user-attachments/assets/a72889b5-2493-4f4c-8e56-6e21f9c130a8)
+![image](https://github.com/user-attachments/assets/9c9db824-86dd-480a-ba54-0d6396e4dac5)
+![image](https://github.com/user-attachments/assets/b90c1742-3da7-48aa-b4cb-387952069815)
+Chapter073
+![image](https://github.com/user-attachments/assets/bc715a10-6364-481d-95f9-4881862310ac)
+![image](https://github.com/user-attachments/assets/4a45049e-6f02-4ea6-8f0f-31c2ec31debc)
 
 
 
