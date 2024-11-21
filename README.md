@@ -710,6 +710,9 @@ Chapter078
 ![image](https://github.com/user-attachments/assets/37f0d4ff-08cd-41c6-bfa4-2ec60a14d474)
 ![image](https://github.com/user-attachments/assets/275357ae-00dd-4145-a635-af672951f018)
 ![image](https://github.com/user-attachments/assets/8407a2de-b7d7-4808-bffd-09a290dd3fe7)
+Chapter076
+![image](https://github.com/user-attachments/assets/2b47906d-667c-4794-8090-e1f0854236f7)
+![image](https://github.com/user-attachments/assets/b07ae1c3-b366-465e-ac47-75f6b900202c)
 
 
 
