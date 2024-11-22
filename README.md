@@ -725,6 +725,11 @@ Chapter073
 Chapter072
 ![image](https://github.com/user-attachments/assets/ad486566-c424-4520-b091-908182459311)
 ![image](https://github.com/user-attachments/assets/0b275a89-4952-4f63-b976-284fd24801ca)
+Kiểm tra gk tv1
+![image](https://github.com/user-attachments/assets/fbed9814-fefa-475c-a312-dc0155a60892)
+![image](https://github.com/user-attachments/assets/669c63e2-92d6-4fae-a738-e4ca1df10fc9)
+![image](https://github.com/user-attachments/assets/0e98192a-1a96-4092-9e4f-24b1070401c6)
+![image](https://github.com/user-attachments/assets/a301a619-a06e-460d-afc2-6b8c55cfd4e3)
 
 
 
